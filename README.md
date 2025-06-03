@@ -2,7 +2,7 @@
 - 👀 I’m interested in Esports
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me insta- { the._blade._ }
+- 📫 How to reach me insta- PRATHAM { the.underscoreblade.underscore }
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: The real taste of winning is when everyone is waiting for you to loose. 
 
